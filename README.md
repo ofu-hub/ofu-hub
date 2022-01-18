@@ -1,5 +1,5 @@
 ### You know i'm kind of dead inside 😄
-![](https://imgur.com/KAJ8mx1)
+![](https://imgur.com/KAJ8mx1.gif)
 <!--
 **ofu-hub/ofu-hub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
